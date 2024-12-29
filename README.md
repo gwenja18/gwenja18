@@ -2,7 +2,7 @@
 - 👀 Je m'intéresse à tout et n'importe quoi
 - 🌱 J'apprends actuellement la vie
 - 💞️ Je cherche à collaborer sur des projets intéressants et novateurs
-- 📫 Comment me contacter : gwenael@jarillot.fr
+- 📫 Comment me contacter : GwenaelJARILLOT@GretaCFAFlesselles.onmicrosoft.com
 - 😄 Pronoms : Gwen
 - ⚡ Fait amusant : J'aime explorer les endroits abandonnés pour découvrir leur histoire cachée.
 
